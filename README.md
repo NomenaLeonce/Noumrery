@@ -1,0 +1,2 @@
+# Noumrery
+lay vao manomboka
